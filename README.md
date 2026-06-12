@@ -1,0 +1,1 @@
+# kotramaniteja2004-Eidectic---AI-Smart-Search-App
